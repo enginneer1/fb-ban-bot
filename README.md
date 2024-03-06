@@ -1,2 +1,6 @@
 # fb-ban-bot
- - no Proxies automatically report -vlink or information af acc - 100%get banned - 10\30 min - contact:https://t.me/enginneer1
+- automatically report
+- link or information of account
+- 100%take ban 
+- take time 20/60min
+- contact me :https://t.me/revverser 
