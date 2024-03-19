@@ -4,4 +4,5 @@ Facebook automatic report bot
 - link or information of account
 - 100%take ban 
 - take time 20/60min
-- contact me :https://t.me/revverser 
+- need proxies
+- contact me :https://t.me/enginneer1
